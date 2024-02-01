@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Java ,HTML**
 
-- 📫 How to reach me **crazyragul043@gmail.com**
+- 📫 How to reach me **raguls1310@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1LMbPBdtnQ2mKXz343YdfIIB-gMWrxBcR/view?usp=drivesdk](https://drive.google.com/file/d/1LMbPBdtnQ2mKXz343YdfIIB-gMWrxBcR/view?usp=drivesdk)
 
